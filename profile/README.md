@@ -19,6 +19,3 @@ Se você é:
 - Uma marca que valoriza **diversidade e inovação** A **TODAS TECH** é o seu lugar. 
 
 Entre em contato e venha fazer parte dessa comunidade tech **feita por mulheres, para mulheres**.
-
-![Gmail](mailto:todastech.contato@gmail.com)
-![YouTube](https://www.youtube.com/@TodasTech)
